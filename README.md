@@ -12,4 +12,4 @@ just for fun - learning xml
 
 ## My Portforios
 
-Please see my Google Data Studio dashboard [here](https://www.google.com)
+Please see my Profile [here](https://www.linkedin.com/in/chonthicha-kitiarsa/)
